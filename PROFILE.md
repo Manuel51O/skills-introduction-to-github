@@ -1,3 +1,4 @@
-Sueño que bailamos en la lluvia
-necesito un cambio de aires
-droga
+Ya no puedo ya no puedo esperar
+yo no quiero yo no quiero
+
+
